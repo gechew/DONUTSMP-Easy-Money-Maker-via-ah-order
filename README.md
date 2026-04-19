@@ -1,3 +1,5 @@
+<img width="700" height="1032" alt="SS" src="https://github.com/user-attachments/assets/c524053c-be17-47c4-994d-977924c9c1e9" />
+<img width="700" height="1032" alt="SS" src="https://github.com/user-attachments/assets/f19c9967-ec5b-4670-b863-f2469cf129e5" />
 🚀 **INSANE AUTO-TRADING BOT – NEXT LEVEL PROFIT MACHINE** 💰🔥
 
 If you're serious about making money, this is where things change.
